@@ -8,4 +8,4 @@
 - I am programming from Brazil 🇧🇷
 - I speak English and Portuguese (might be learning some other languages). No my english isn't actually this bad. Programming
 - Programming
-- I am not just programming. I am halfway competent in music (not programming music though), interested in languages and others
+- I am not just programming. I do some music (not programming music though), interested in languages and others
